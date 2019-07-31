@@ -7,6 +7,6 @@
 1. [IEEE Spectrum: Simple, Effective Public Speaking Tips for Engineers](https://spectrum.ieee.org/the-institute/ieee-member-news/simple-effective-public-speaking-tips-for-engineers)
 1. [IEEE USA: Public Speaking for Engineers—Say It Loud and Proud](https://ieeeusa.org/shop/careers/public-speaking-for-engineers/)
 1. [The Six Rules of Effective Public Speaking](https://www.genardmethod.com/blog/the-six-rules-of-effective-public-speaking)
-1. [7 Steps to Effective Speaking](https://www.huffpost.com/entry/7-steps-to-effective-spea_b_229670])
+1. [7 Steps to Effective Speaking](https://www.huffpost.com/entry/7-steps-to-effective-spea_b_229670)
 1. [Aspects of Effective Speaking](https://www.skillsyouneed.com/ips/effective-speaking.html)
 
